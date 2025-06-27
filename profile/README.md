@@ -1,4 +1,4 @@
-## 5 Best Alternatives to FMovies That Actually Work in 2024: Safe & Free Streaming Options
+## 5 Best Alternatives to FMovies That Actually Work in 2025: Safe & Free Streaming Options
 
 Discover GIGAMAXCINEMA – a safe, fast, and free movie streaming alternative in 2025. Watch top films & series online without hassle. No sign-up, just pure entertainment!
 
